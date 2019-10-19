@@ -5,9 +5,9 @@
 
 全网唯一0广告，纯福利网站。欢迎分享!
 
-❤️ 👉 【地址一】 ：http://tq188.com
+❤️ 👉 【地址一】 ：http://tqb188.com
 
-❤️ 👉 【地址二】 ：http://tq139.com
+❤️ 👉 【地址二】 ：http://tqb139.com
 
 ❤️ 👉 【邮箱联系方式】 ：tuoqun8@gmail.com
 
